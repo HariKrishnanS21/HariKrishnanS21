@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HariKrishnanS21
 - 👀 I’m interested in ... aeronautics, robotics, and coding
-- 🌱 I’m currently learning ... aeronautical engineering
+- 🌱 I’m completed ... aeronautical engineering
 - 💞️ I’m looking to collaborate on ...Coding and Robotics field
 - 📫 How to reach me ... email: harikrishnansreenivasan@gmail.com
                       whatsapp: 9567872173
